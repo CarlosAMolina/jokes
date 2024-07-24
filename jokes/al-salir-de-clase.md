@@ -1,0 +1,3 @@
+- Mi papá se va a poner muy contento.
+- ¿Por qué?
+- Pues porque había apostado conmigo a que me suspendían en todas las asignaturas... ¡Y ha ganado!

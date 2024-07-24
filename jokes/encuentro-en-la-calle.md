@@ -1,0 +1,3 @@
+- Hombre, Juan. ¡Cómo has cambiado! Antes eras moreno y ahora rubio. Antes eras alto y ahora bajo...
+- ¡Es que no soy Juan!
+- Anda. ¿También has cambiado de nombre?

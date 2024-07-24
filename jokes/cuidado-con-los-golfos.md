@@ -1,0 +1,3 @@
+- ¿Qué aprendéis ahora en la escuela? Pregunta la abuelita a su nieta.
+- Estamos aprendiendo los nombres de todos los golfos de España.
+- ¡Ay que ver! Exclama la abuelita, las cosas que enseñan ahora las maestras a las alumnas.
