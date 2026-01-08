@@ -1,0 +1,2 @@
+- Papá, ¿qué se siente al tener un hijo tan inteligente?
+- No se... Pregúntale a tu abuelo.
