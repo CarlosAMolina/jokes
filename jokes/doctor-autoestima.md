@@ -1,0 +1,3 @@
+- Doctor, tengo un problema de autoestima.
+- Eso lo dice todo el mundo.
+- ¡¿Ve?! Hasta usted me ignora.
